@@ -9,7 +9,7 @@ image:
   alt: The New Job book cover
 ---
 
-[Get It On Amazon Here](http://www.amazon.com/dp/B08B7NLZGQ/)
+[Get It On Amazon Here](https://www.amazon.com/dp/B08B7NLZGQ/)
 In this full-length, 53,000 word novel, a furry named Max (a gay 19-year-old golden retriever), applies to a mysterious help wanted ad in an effort to break up the boredom of his first year of college. Little does he realize the unusual, sexually charged duties his new job entails. Will fear and self-doubt force Max to back out of this unexpected new life? Or will he follow his heart (and his cock) and let handsome wolf Stephen lead him into a strange new world?
 
 A diverse cast of characters teach Max the joys of embracing his secret fetishes for bondage, diapers, ageplay, chastity and more. Max meets furs of every species with their own kinks and fetishes, both cis and trans men, characters of various ethnicities and more as he explores the strange, diverse, wonderful, kink-filled world of his new employer, StartAgain.
